@@ -1,0 +1,1 @@
+semuatak sama 
